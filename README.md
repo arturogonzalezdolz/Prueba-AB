@@ -2,4 +2,4 @@
 
 
 
-Arturo recuerda... Ubuntu >>> Windows + MacOS 
+Arturo recuerda... Ubuntu <<< Windows + MacOS :( 
